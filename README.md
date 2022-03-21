@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Andrea Gabrielliunibo
+- 👋 Hi, I’m Andrea Gabrielli
 - 👀 I’m interested in life enjoy
 - 🌱 I’m currently learning to fly
 - 💞️ 
